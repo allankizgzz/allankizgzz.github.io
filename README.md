@@ -1,2 +1,2 @@
-# `<allankizgzz.github.io>`my web
-allankizgzz.github.io
+# `<allankizgzz.github.io>`[my web](https://allankizgzz.github.io/)
+
